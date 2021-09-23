@@ -1,1 +1,0 @@
-# nadalsamac.github.io
